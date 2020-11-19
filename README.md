@@ -8,8 +8,7 @@ Daily Check Limit :- Unlimited
 Version  :- v2.0 
 Price :- 35$  
 
-
+Contacts 
 Author   :-  Cyanide                          
 Telegram :-  https://t.me/CyanideOfficial 
-
 Instagram :- https://www.instagram.com/thecyanideofficial/
